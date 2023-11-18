@@ -9,17 +9,17 @@
 
 - 🤝 I’m looking for help with **All the mistakes**
 
-- 👨‍💻 All of my projects are available at [comming soon...](comming soon...)
+- 👨‍💻 All of my projects are available at [comming soon...]
 
-- 📝 I regularly write articles on [I'm considering it](I'm considering it)
+- 📝 I regularly write articles on [I'm considering it]
 
 - 💬 Ask me about **Basic stack**
 
 - 📫 How to reach me **rrsart2023@proton.me**
 
-- 📄 Know about my experiences [Will post it](Will post it)
+- 📄 Know about my experiences [Will post it]
 
-- ⚡ Fun fact **AI IA Human Computer interface & communication Could help Us sole problems**
+- ⚡ Fun fact **AI IA Human Computer interface & communication Could help Us solve challenges & problems**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
